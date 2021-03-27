@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @shiroyashik
+- 🌱 I’m currently learning something... :/
